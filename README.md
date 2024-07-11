@@ -1,1 +1,1 @@
-![ebac banking](https://github.com/fernandamferraz/ebac_banking/assets/161902026/d41b43f0-7a1f-459c-bd9b-e052f85403e0)
+![GIF 11-07-2024 11-44-37](https://github.com/fernandamferraz/ebac_banking/assets/161902026/23aa3d9c-92cf-41f4-8bd5-641d9471e570)
